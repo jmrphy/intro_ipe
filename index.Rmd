@@ -69,7 +69,7 @@ To give you a roadmap of what we think we know in IPE today, while emphasising t
 
 ---
 
-## Globalisation and/or neoliberalism?
+## Globalization and/or neoliberalism?
 
 > 1. Since the 1990s, all we hear about is "globalization"
     - The increasingly free flow of capital, goods and services around the globe

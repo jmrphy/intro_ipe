@@ -17,7 +17,6 @@ Graeber, David. 2002. “The New Anarchists.” *New Left Review* 13.
 Cox, Robert W. 1981. “Social Forces, States and World Orders: Beyond International Relations Theory.” *Millennium-Journal of International Studies* 10, 2: 126–155.
 [Full text available here](https://a0d1db95-a-62cb3a1a-s-sites.googlegroups.com/site/tuespacioenvivo2009/Home/cOX.pdf?attachauth=ANoY7cqRK4U1sG4FDoGTs5Z8Smih3wU9R5kihBP46n0VwIWu4sEnlSAbbBhBPaBGitXuUM-p_PFB-txVIXnkgWC-FPPP1yoEMhBSPWVnXlb-pxjPVyGhfsFyW_OACi1oSDUwoU50dWHrcxo2DB7PnSwgo0GVmB7G8icpi4GU7mIqYEHLK1hjGi-338hb19aFE8-ia2n0xi6YRlBl-WxgEyQxQxb5B6tNCtHW2Tfj6_O2rRIcnRSKTIg%3D&attredirects=1)
 
-
 Strange, Susan. 1987. “The Persistent Myth of Lost Hegemony.” *International Organization* 41, 4: 551–574.
 [Full text available here](http://home.aubg.bg/students/PDG090/GPE/Strange%20-%20Persistent%20Myth%20of%20Lost%20Hegemony.pdf)
 
@@ -34,5 +33,11 @@ Harvey, David. 2005. *A Brief History of Neoliberalism*. Edited by Oxford Univer
 Hay, Colin, and Ben Rosamond. 2011. “Globalization, European Integration and the Discursive Construction of Economic Imperatives.” Dx.Doi.org.Libproxy.Temple.Edu 9, 2: 147–167.[Full text available here](http://users.ox.ac.uk/~ssfc0041/globalisation.pdf)
 
 Faux, Jeff. 2006. *The Global Class War: How America's Bipartisan Elite Lost Our Future - and What It Will Take to Win It Back*, Wiley. 
+
+Freeland, Chrystia. 2012. *Plutocrats: the Rise of the New Global Super-Rich and the Fall of Everyone Else*, Allen Lane.
+
+Rudra, Nita. 2002. “Globalization and the Decline of the Welfare State in Less-Developed Countries.” *International Organization*: 1–36.
+
+Burgoon, Brian. 2001. “Globalization and Welfare Compensation: Disentangling the Ties That Bind.” *International Organization* 55, no. 3: 509–551.
 
 
